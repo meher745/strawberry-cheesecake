@@ -1,0 +1,1 @@
+This recipe has detailed step-by-step instructions to make a tasty strawberry cheesecake! It is easy and fun to bake and surely a treat.The filling is creamy and cheese-filled.The sauce only adds to the heavenly taste.It is certainly a must try for cooking enthusiasts! ALL THE BEST!!!
